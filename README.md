@@ -1,0 +1,2 @@
+# vseobecne
+vase strasti
